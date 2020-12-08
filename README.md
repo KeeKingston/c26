@@ -1,1 +1,1 @@
-# c26
+Fried potatoes are pieces of potato cooked in oil or fat. ... Fried potatoes are better when the potatoes are cooked in duck fat. For fried potatoes, slice potatoes thinly and put them in a pan.
